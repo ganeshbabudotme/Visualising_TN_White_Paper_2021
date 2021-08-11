@@ -12,8 +12,8 @@ While the document makes notional statements about solutions for fixing it, ther
 
 I'm looking forward to the state budget in a few days to see how the government aims to tackle these challenges.
 
-I've tried to visualise the Crux of the document for easy dissemination. However, the document has a lot of info. It's just 122 pages, do check it out if you have the time. It's available in both English and Tamil at tnbudget.tn.gov.in
+I've tried to visualise the Crux of the document for easy dissemination in Part I. However, the document has a lot of info. It's just 122 pages, do check it out if you have the time. It's available in both English and Tamil at tnbudget.tn.gov.in
 
-There's also an interesting segment on devolution of funds to local bodies in the document. As an Urbanist, this is super relavant information which I'll try to expand and explain if I have the time. 😅
+There's also an interesting segment on devolution of funds to local bodies in the document. As an Urbanist, this is super relavant information which I'll try to expand and explain it in Part II if I have the time. 😅
 
 Let me know your thoughts and comments on how we could solve this.
